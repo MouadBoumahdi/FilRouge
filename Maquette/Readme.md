@@ -1,0 +1,1 @@
+link of the maquette: https://www.figma.com/design/V9TpGYVazdG6OwxEOKDOCT/Medicare-app?node-id=0-1&t=5DlDGBlldsd2Fhso-1
