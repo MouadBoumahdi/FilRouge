@@ -1,0 +1,1 @@
+link of the diagrames: https://viewer.diagrams.net/?tags=%7B%7D&lightbox=1&highlight=0000ff&layers=1&nav=1&title=Medicare_conception.drawio&dark=auto#Uhttps%3A%2F%2Fdrive.google.com%2Fuc%3Fid%3D1I-urZgj1uYCugHyfFaTZvtKlROs8DLbO%26export%3Ddownload
