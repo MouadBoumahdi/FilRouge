@@ -1,0 +1,1 @@
+link of presentation: https://canva.link/g50nq10tt7rv2zp
